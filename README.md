@@ -2,6 +2,7 @@
 
 KEY HIGHLIGHTS
 
+
 Overall Attrition Rate
 Top Reasons for Attrition 
 Departmental Breakdown
