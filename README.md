@@ -10,4 +10,4 @@ Top Reasons for Attrition
 
 Departmental Breakdown
 
-Link: https://www.canva.com/design/DAF77M4rPv8/nVNDFVg_mho8ZLjpzlSqpw/edit?utm_content=DAF77M4rPv8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+PDF LINK: https://drive.google.com/file/d/12bi_ZOgpOuniAFcebTY48R3w2KoZAgQY/view?usp=sharing
